@@ -13,7 +13,7 @@ ___
 6. US History 1
 7. SEP(11th Grade)
 
-8. Espoñal 5
+8. Espanol
 ***
 **Things I like to do**:
 * Gaming
